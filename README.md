@@ -40,7 +40,7 @@ Atualmente, utilizo o sistema Sênior há 10 anos, porém, tenho muita facilidad
 
 
 📸 **Instagram:** [@michellecosta.rh](https://instagram.com/michellecosta.rh)  
-💼 **LinkedIn:** [linkedin.com/in/michellecostafelix]
+💼 **LinkedIn:** [linkedin.com/in/michellecostafelix](https://www.linkedin.com/in/michellecostafelix)
 ---
 
 ## ✨ Um pensamento que me guia  
